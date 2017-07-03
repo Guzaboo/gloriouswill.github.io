@@ -1,2 +1,2 @@
-# gloriouswill.github.io
-Glorious William Culhane
+# kedric.is.a.scammer
+Kedric is a scammer
